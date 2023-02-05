@@ -1,0 +1,1 @@
+BooktifuL requests failure report
